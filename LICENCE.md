@@ -1,1 +1,2 @@
-totalnì free
+totalne free
+a pro vsechny
